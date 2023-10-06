@@ -13,4 +13,5 @@
 ## 选答题展示  
 ### 2.2绘画作品，
 二次元插画是我的一大爱好，本人可熟练使用ps绘制作品，并且已注册pixiv，artstation，小蓝鸟等社媒账号，点击查看投稿作品→
-[点我](https://www.pixiv.net/users/43265544 "别忘了科学上网")
+[点我](https://www.pixiv.net/users/43265544 "别忘了科学上网")  
+本人曾使用wallpaper engine引擎制作了一张动态壁纸并在steam创意工坊中发布，点击查看投稿作品→[点我](https://steamcommunity.com/sharedfiles/filedetails/?id=3001711331 "别忘了科学上网") 
